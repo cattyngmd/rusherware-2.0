@@ -66,6 +66,8 @@ Who created this cool and overpowered modification????
 
 # To John200410:
 
-If you dmca, you're a pedo, racist and you hate BLM and LGBTQ+.
+  JOHN IS A COMPLETE PEDO, RACIST AND BLM & LGBTQ+ HATER!
+  
+If you dmca the second repo, (you're a pedo, racist and you hate BLM and LGBTQ+) x2.
 
 </div>

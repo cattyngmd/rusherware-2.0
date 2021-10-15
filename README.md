@@ -68,6 +68,6 @@ Who created this cool and overpowered modification????
 
   JOHN IS A COMPLETE PEDO, RACIST AND BLM & LGBTQ+ HATER!
   
-If you dmca the second repo, (you're a pedo, racist and you hate BLM and LGBTQ+) x2.
+If you dmca the second repo, (you're a pedo, racist and you hate BLM and LGBTQ+) x2. ( he did so yeah.. )
 
 </div>

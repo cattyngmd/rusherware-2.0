@@ -1,0 +1,2 @@
+# rusherware-2.0
+OLD REPO WAS DMCA'D BY JOHN SO HE'S VERY GAY
